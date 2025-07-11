@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **school**
 
-- 📝 I regularly write blog on [https://howard111.me](https://howard111.me)
+- 📝 I regularly write blog on [https://my.howard111.me](https://my.howard111.me)/[https://howard111.me](https://howard111.me)
 
 - 📫 How to reach me **111howard555xxx@gmail.com**/**Howard@howard111.me**
 
