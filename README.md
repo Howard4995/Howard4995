@@ -8,6 +8,8 @@
 - 📝 I regularly write blog on [https://my.howard111.me](https://my.howard111.me)/[https://howard111.me](https://howard111.me)
 
 - 📫 How to reach me **111howard555xxx@gmail.com**/**Howard@howard111.me**
+-**狀態**：在月球拉屎，逃離學校  
+-**地點**：你猜我在哪
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
